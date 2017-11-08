@@ -1,2 +1,0 @@
-# PartyAllNight
-Its about Parties
